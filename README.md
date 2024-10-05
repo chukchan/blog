@@ -1,1 +1,0 @@
-# dear-art-blog
